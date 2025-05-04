@@ -21,10 +21,12 @@ G : `I could say the same! I feel safer with you around!`
 
 S: `That's what a big sister is for!`
 
+![17463729263482840896313276090580](https://github.com/user-attachments/assets/80ee3776-0ee2-452a-9bd2-2dcafc285f6d)
+
 ## 
 G: `Sprout! You seem a little tense! Need a big hug?`
-	
- S: `Nah... I'm good.`
+
+S: `Nah... I'm good.`
 	
 G: `...Are you sure?`
 
@@ -33,6 +35,8 @@ S: `...`
 G: `-After this I can give you the biggest hug!! C'mon!!`
 	
 S: `Hmmm, fine! After this.`
+
+![17463727451373493217827919011591](https://github.com/user-attachments/assets/a45b3d85-dc0d-4c77-a4a5-0645689272d3)
 
 ##
 
@@ -46,7 +50,7 @@ G: `Oh! It’s not a business! I hug for free!`
 
 Y: `FOR FREE??? Sign me up for more!!`
 
-![17463725107612780762769943420902](https://github.com/user-attachments/assets/ebcf204d-0c8f-4d83-b71a-ad541ebceb9c)
+![17463728027712825254904869064297](https://github.com/user-attachments/assets/f5c1eae6-9494-4068-9f11-3ef105c6dfaa)
 
 ##
 
@@ -59,3 +63,11 @@ A:`But, you don't have one...?`
 G:`Not in the dream I don't!`
 
 A:`Right...`
+
+![17463729944532103699209046966391](https://github.com/user-attachments/assets/2d2b0c98-f5c7-4176-88b4-4440d0e5ddc5)
+
+
+---
+
+none of the art belongs to me ! ^^ 
+they all belong to their rightful owners :3
