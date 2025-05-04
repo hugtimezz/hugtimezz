@@ -1,5 +1,6 @@
 ##
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=A77767&width=435&lines=%60+hug+time+!!%60;%60+I'm+having+so+much+fun+!!+%60;%60+free+hugs+!+%60;%60+hug+time+!+%60;%60+scraps+would+be+so+proud+!+%60;%60+I+could+use+a+hug+right+now+!+%60)](https://git.io/typing-svg)
 
 <!--
 **hugtimezz/hugtimezz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
