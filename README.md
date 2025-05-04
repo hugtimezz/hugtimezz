@@ -4,6 +4,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=A77767&width=435&lines=%60+hug+time+!!%60;%60+I'm+having+so+much+fun+!!+%60;%60+free+hugs+!+%60;%60+hug+time+!+%60;%60+scraps+would+be+so+proud+!+%60;%60+I+could+use+a+hug+right+now+!+%60)](https://git.io/typing-svg)
 
+![1746372588736356414253556612036](https://github.com/user-attachments/assets/7ea26745-3e60-440a-9a42-eafe77a2401d)
 
 
  ## Hug!.
@@ -44,6 +45,8 @@ Y: `How’s the whole HUG BUSINESS??`
 G: `Oh! It’s not a business! I hug for free!`
 
 Y: `FOR FREE??? Sign me up for more!!`
+
+![17463725107612780762769943420902](https://github.com/user-attachments/assets/ebcf204d-0c8f-4d83-b71a-ad541ebceb9c)
 
 ##
 
