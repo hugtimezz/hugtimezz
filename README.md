@@ -1,11 +1,9 @@
 ##
+![Untitled28_20250706135145](https://github.com/user-attachments/assets/4d3fe308-fcf8-45b3-a4c0-ef3e64071bd1)
 
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=A77767&width=435&lines=%60+hug+time+!!%60;%60+I'm+having+so+much+fun+!!+%60;%60+free+hugs+!+%60;%60+hug+time+!+%60;%60+scraps+would+be+so+proud+!+%60;%60+I+could+use+a+hug+right+now+!+%60)](https://git.io/typing-svg)
-
-![1746372588736356414253556612036](https://github.com/user-attachments/assets/7ea26745-3e60-440a-9a42-eafe77a2401d)
-
 
  ## Hug!.
 
